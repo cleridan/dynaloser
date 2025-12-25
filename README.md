@@ -1,11 +1,11 @@
 <p align="center" dir="auto">
-<sub>call me dex or nathan </sub>
+<sub>call me mike or nathan </sub>
 
 <p align="center" dir="auto">
-<img src="ttps://i.postimg.cc/L5d0Bg62/Untitled529-20250918140348.png" style="max-width: 100%; "></p>
+<img src="[ttps://i.postimg.cc/L5d0Bg62/Untitled529-20250918140348.png](https://files.catbox.moe/e5wqqp.png)" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
-<sub>Literally Katsuki. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
+<sub>Literally Michael. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
 
 <p align="center" dir="auto">
 <sub>'Cause girl I was made for you, and girl you were made for me.</sub>
